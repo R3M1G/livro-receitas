@@ -20,7 +20,7 @@
 
 ## Modo de preparo
 
-Bata ovos até espumare, adicione sal e pimenta a gosto. Corte o queijo em cubos, adicione a mistura junto com folhas de hortelã picadas.
+Bata ovos até espumarem, adicione sal e pimenta a gosto. Corte o queijo em cubos, adicione a mistura junto com folhas de hortelã picadas.
 Leve a frigideira
 
 
