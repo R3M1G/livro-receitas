@@ -1,7 +1,7 @@
-# Livro d Receitas
+# Livro de Receitas
 
-Olá! bem vindo ao livro de receitas 1.0
+Olá! bem vindo ao livro de receitas v 0.001
 
-
-
-- Stronoff de Frango
+- Strogonoff de Frango
+- ??
+- 
